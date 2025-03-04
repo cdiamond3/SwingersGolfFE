@@ -37,17 +37,3 @@ Solo golfers looking for partners.
 Groups looking to expand their playing circle.
 
 Travelers seeking a local golfing buddy.
-
-📥 Installation & Access
-
-GolfMates is available as a mobile app for iOS and Android. Simply download, sign up, and start finding your perfect golf partners!
-
-🔗 Download GolfMates Now
-
-💬 Get in Touch
-
-Have feedback, questions, or feature requests? Reach out to us:
-
-📧 Email: support@golfmates.com🌐 Website: www.golfmates.com📱 Follow us on social media: @GolfMatesApp
-
-🏌️‍♂️🏌️‍♀️ Ready to find your perfect golfing buddy? Join GolfMates today! ⛳
